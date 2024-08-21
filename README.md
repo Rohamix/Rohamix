@@ -1,5 +1,3 @@
-🎵 **Music Producer | 🎬 Director | ✍️ Poet | 💻 Programmer**
-
 Hello! I'm Roham Parsa, a multifaceted creator with a passion for blending art and technology. Based in Iran, I thrive on crafting unique experiences through music, film, poetry, and code.
 
 ## 🌟 About Me
